@@ -1,6 +1,5 @@
-# esohbet.github.io
-sohbet
-Sohbet
+# Sohbet - Chat Sohbet Odaları Mobil Sohbet Siteleri
+# Sohbet
 Sohbet denilince birçok çok şey geliyor hepimizin aklına. Peki ya mobil sohbet diyince aklınıza gelenler nelerdir?
 Mobil muhabbet, Akıllı cihazlara uyumlu çevrim içi mesajlaşa bileceğiniz Mobil chat flashsız javasız söyleşi sitesi. Sohbetin diğer bir adı söyleşi dir. Ben makalede bugün sohbet kelimesinden çok söyleşi kelimesini kullanmak istiyorum. Gerçeği söylemek gerekirse bir muhabbet sitesine sohbet diye makale yazmak biraz zor iştir. Nedeni ise bilirsiniz bu makalelerin seo uyumlu olabilmesi için en fazla altı kez o kelimeyi geçirmek yeterli oluyor. Azı karar çoğu zarar demişler. Fazlasını google amca istemiyor. Sizlerde mobil chat için en kaliteli hali için bu adrese gelin.
 
