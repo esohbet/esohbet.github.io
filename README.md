@@ -5,10 +5,10 @@ Mobil muhabbet, Akıllı cihazlara uyumlu çevrim içi mesajlaşa bileceğiniz M
 
 <h1>Sohbet </h1>
 IOS ve Android vb. mobil cihazlarınızdan da <a href="http://www.sohbetodalari.life" title="chat">chat</a> yapmanız için ayrıca mobile uyumlu söyleşi sayfası hazırlamış ve siz değerli kullanıcılarının hizmetlerine ücretsiz olarak sunmaktadır.
-Türkiye'nin en samimi ve güzel arkadaşlıklar kurulduğu <a href="http://www.dirdir.net" title="sohbet">sohbet</a> platformumuzda siz değerli kullanıcılarımız kullandığınız nicklerin başkası tarafından kullanılmaması için /nickserv register şifre e-mail komutuyla kayıt ediniz. 
+Türkiye'nin en samimi ve güzel arkadaşlıklar kurulduğu <a href="http://www.sohbet.press" title="sohbet">sohbet</a> platformumuzda siz değerli kullanıcılarımız kullandığınız nicklerin başkası tarafından kullanılmaması için /nickserv register şifre e-mail komutuyla kayıt ediniz. 
 
 Mal kaybeden, bir şey kaybetmiştir, onurunu kaybeden birçok şey kaybetmiştir. Fakat cesaretini kaybeden her şeyini kaybetmiştir. Sizde son bir cesaret gösterin. Mobil chat sitesinde yüreğinizi istediğini bulun.
-Harika bir söyleşi keyfi yaşamak isteyenler tercih ettiği tek chat adresi olduğumuzu belirtmek isteriz. Harika chat adresimize mobil telefonlarınızdan giriş yaparak söyleşi keyfini telefonunuzdan sürdürebilirsiniz. Kendinize bir rumuz belirleyerek <a href="https://sohbethane.net" title="sohbet">sohbet</a> kanallarımızdaki muhabbete sizde katılabilirsiniz.
+Harika bir söyleşi keyfi yaşamak isteyenler tercih ettiği tek chat adresi olduğumuzu belirtmek isteriz. Harika chat adresimize mobil telefonlarınızdan giriş yaparak söyleşi keyfini telefonunuzdan sürdürebilirsiniz. Kendinize bir rumuz belirleyerek <a href="https://irc.ircask.com" title="sohbet">sohbet</a> kanallarımızdaki muhabbete sizde katılabilirsiniz.
 
 <h2>Harika chat </h2>
 Biz bu harika chat de bazen diyoruz ki; Bizi isterseniz dövün, ama bırakın istedigimiz kadar gülelim.
