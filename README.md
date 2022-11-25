@@ -4,11 +4,11 @@ Sohbet denilince birçok çok şey geliyor hepimizin aklına. Peki ya mobil sohb
 Mobil muhabbet, Akıllı cihazlara uyumlu çevrim içi mesajlaşa bileceğiniz Mobil chat flashsız javasız söyleşi sitesi. Sohbetin diğer bir adı söyleşi dir. Ben makalede bugün sohbet kelimesinden çok söyleşi kelimesini kullanmak istiyorum. Gerçeği söylemek gerekirse bir muhabbet sitesine sohbet diye makale yazmak biraz zor iştir. Nedeni ise bilirsiniz bu makalelerin seo uyumlu olabilmesi için en fazla altı kez o kelimeyi geçirmek yeterli oluyor. Azı karar çoğu zarar demişler. Fazlasını google amca istemiyor. Sizlerde mobil chat için en kaliteli hali için bu adrese gelin.
 
 <h1>Sohbet </h1>
-IOS ve Android vb. mobil cihazlarınızdan da <a href="http://www.sohbetodalari.life" title="chat">chat</a> yapmanız için ayrıca mobile uyumlu söyleşi sayfası hazırlamış ve siz değerli kullanıcılarının hizmetlerine ücretsiz olarak sunmaktadır.
-Türkiye'nin en samimi ve güzel arkadaşlıklar kurulduğu <a href="http://www.sohbet.press" title="sohbet">sohbet</a> platformumuzda siz değerli kullanıcılarımız kullandığınız nicklerin başkası tarafından kullanılmaması için /nickserv register şifre e-mail komutuyla kayıt ediniz. 
+IOS ve Android vb. mobil cihazlarınızdan da <a href="https://www.websohbet.org.tr" title="chat">chat</a> yapmanız için ayrıca mobile uyumlu söyleşi sayfası hazırlamış ve siz değerli kullanıcılarının hizmetlerine ücretsiz olarak sunmaktadır.
+Türkiye'nin en samimi ve güzel arkadaşlıklar kurulduğu <a href="https://www.sohbete.com.tr" title="sohbet">sohbet</a> platformumuzda siz değerli kullanıcılarımız kullandığınız nicklerin başkası tarafından kullanılmaması için /nickserv register şifre e-mail komutuyla kayıt ediniz. 
 
 Mal kaybeden, bir şey kaybetmiştir, onurunu kaybeden birçok şey kaybetmiştir. Fakat cesaretini kaybeden her şeyini kaybetmiştir. Sizde son bir cesaret gösterin. Mobil chat sitesinde yüreğinizi istediğini bulun.
-Harika bir söyleşi keyfi yaşamak isteyenler tercih ettiği tek chat adresi olduğumuzu belirtmek isteriz. Harika chat adresimize mobil telefonlarınızdan giriş yaparak söyleşi keyfini telefonunuzdan sürdürebilirsiniz. Kendinize bir rumuz belirleyerek <a href="https://irc.ircask.com" title="sohbet">sohbet</a> kanallarımızdaki muhabbete sizde katılabilirsiniz.
+Harika bir söyleşi keyfi yaşamak isteyenler tercih ettiği tek chat adresi olduğumuzu belirtmek isteriz. Harika chat adresimize mobil telefonlarınızdan giriş yaparak söyleşi keyfini telefonunuzdan sürdürebilirsiniz. Kendinize bir rumuz belirleyerek <a href="https://www.omegletv.org.tr" title="sohbet">sohbet</a> kanallarımızdaki muhabbete sizde katılabilirsiniz.
 
 <h2>Harika chat </h2>
 Biz bu harika chat de bazen diyoruz ki; Bizi isterseniz dövün, ama bırakın istedigimiz kadar gülelim.
